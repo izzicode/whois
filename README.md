@@ -1,1 +1,1 @@
-<img src="https://anonfiles.com/ceE7e3H5yd/_2022-11-12_22.28.36_png">
+<img src="https://cdn-115.anonfiles.com/haFce0Haye/685c3565-1668271267/%C3%90%C2%A1%C3%90%C2%BD%C3%90%C2%B8%C3%90%C2%BC%C3%90%C2%BE%C3%90%C2%BA%20%C3%91%C2%8D%C3%90%C2%BA%C3%91%C2%80%C3%90%C2%B0%C3%90%C2%BD%C3%90%C2%B0%202022-11-12%20%C3%90%C2%B2%2022.28.36.png">
